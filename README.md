@@ -1,6 +1,6 @@
 ### Hi there, I'm Miguel Angel 👋
 
-## I'm a systems engineer , web developer specializing in js and python!
+## I'm  engineer , web developer specializing in js and python!
 
 - 🌱 I’m currently learning everything 🤣
 - 🥅 2020 Goals: Contribute more to Open Source projects
