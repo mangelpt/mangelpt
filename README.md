@@ -3,7 +3,7 @@
 ##  :) !
 
 - 🌱 I’m currently learning everything 🤣
-- 🥅 2020 Goals: Contribute more to Open Source projects
+- 🥅 2020 Goals: Clearning everything 🤣
 - ⚡ Fun fact: I love to read and play chess
 
 ### Connect with me:
