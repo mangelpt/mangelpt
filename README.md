@@ -3,7 +3,7 @@
 ##  :) !
 
 - 🌱 I’m currently learning everything 🤣
-- 🥅 2022 Goals: learning everything 🤣
+- 🥅 2026 Goals: learning everything 🤣
 - ⚡ Fun fact: I love to read and play chess
 
 ### Connect with me:
